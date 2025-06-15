@@ -1,0 +1,1 @@
+# merkut-2025-veriSetiTemizligi
